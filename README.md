@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vk2694
+- 👋 Hi, I’m Vijayakanth
 - 👀 I’m interested in Challenging Tasks
 - 🌱 I’m currently learning Cross Platforms Technologies
 - 💞️ I’m looking to collaborate on better team.
